@@ -1,4 +1,4 @@
-Wouh, aïeaïeaïeaïeaïe
+Hey, hey ya, hey hey ya
 C'est le retour de Ken Masters
 Kenshin, Kentaro, Ken ken ta sœur
 On veut tous se mettre bien, rien ne sert de nier
